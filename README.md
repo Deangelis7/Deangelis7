@@ -8,7 +8,6 @@ Sou apaixonada por aprender e resolver problemas. Sempre aberta a novos desafios
 
 
 - 🌱 Estudante de Análise e Desenvolvimento de Sistemas
-- ✍🏾 Criador de conteúdo de programação e tecnologia
 - 😄 Pronome: ela/dela
 - ⚡ Adoro conversar e descobrir coisas novas
 
